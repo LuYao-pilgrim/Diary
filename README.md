@@ -1,2 +1,2 @@
 # Diary
-Daily Diary
+陆遥每日自省，别浑浑噩噩度过每一天
